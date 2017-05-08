@@ -10,6 +10,8 @@ Roteiro para o [Trabalho Final](https://drive.google.com/open?id=0B5iaTzpaUAh6Y3
 
 Arquivos das [aula 5 e 6 de 24/4](https://drive.google.com/open?id=0B5iaTzpaUAh6Q3VYUmRZSG50dEE).
 
+Arquivos das [aula 7 e 8 de 24/4](https://drive.google.com/open?id=0B5iaTzpaUAh6MzdYMnBkY0xLc1U).
+
 [1o Exercício Pontuado](https://goo.gl/forms/Onz35gD26GCuhnHo2).
 
 Qualquer dúvida mandem email para paulofg@gmail.com
