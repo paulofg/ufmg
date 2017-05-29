@@ -16,9 +16,14 @@ Arquivos das [aula 7 e 8 de 08/5](https://drive.google.com/open?id=0B5iaTzpaUAh6
 
 Arquivos das [aula 9 e 10 de 15/5](https://drive.google.com/open?id=0B5iaTzpaUAh6N2JQZHdVUkRjdXM).
 
+[2o Exercício Pontuado](https://goo.gl/forms/vvBj6rkd0LVJb2im2).
+
 Arquivos das [aula 11 e 12 de 12/5](https://drive.google.com/open?id=0B5iaTzpaUAh6OS1tQUE2UVFHZnM)
 
-[2o Exercício Pontuado](https://goo.gl/forms/vvBj6rkd0LVJb2im2).
+[Datas Importantes](https://drive.google.com/open?id=0B5iaTzpaUAh6VE1qZUdWNE1SRXc)
+
+Arquivos das [aula 13 e 14 de 29/5](https://drive.google.com/open?id=0B5iaTzpaUAh6SHoxRDNnNEdMa1E)
+
 
 Qualquer dúvida mandem email para paulofg@gmail.com
 
