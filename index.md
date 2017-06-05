@@ -24,6 +24,8 @@ Arquivos das [aula 11 e 12 de 12/5](https://drive.google.com/open?id=0B5iaTzpaUA
 
 Arquivos das [aula 13 e 14 de 29/5](https://drive.google.com/open?id=0B5iaTzpaUAh6SHoxRDNnNEdMa1E)
 
+Arquivos das [aula 15 e 16 de 05/6](https://drive.google.com/open?id=0B5iaTzpaUAh6Zks2RXl5SVlWQkk)
+
 
 Qualquer dúvida mandem email para paulofg@gmail.com
 
