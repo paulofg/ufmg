@@ -26,6 +26,7 @@ Arquivos das [aulas 13 e 14 de 29/5](https://drive.google.com/open?id=0B5iaTzpaU
 
 Arquivos das [aulas 15 e 16 de 05/6](https://drive.google.com/open?id=0B5iaTzpaUAh6Zks2RXl5SVlWQkk)
 
+[Link para o exercício de lógica de programação](https://drive.google.com/drive/folders/0B5iaTzpaUAh6UTB1UW90NzB4YTQ?usp=sharing)
 
 Qualquer dúvida mandem email para paulofg@gmail.com
 
